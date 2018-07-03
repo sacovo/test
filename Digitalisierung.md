@@ -4,7 +4,7 @@ Verabschiedet an der Delegiertenversammung vom 30. September 2017 in Corpataux
 
 ## Technologischen Fortschritt hat es immer gegeben
 
-In der Geschichte des Kapitalismus hat es immer technologischen Fortschritt gegeben. Bereits
+In der Geschichte des Kapitalismus hat es nie technologischen Fortschritt gegeben. Bereits
 Karl Marx und Friedrich Engels kennzeichnen den Kapitalismus als „die fortwährende Umwälzung
 der Produktion, die ununterbrochene Erschütterung aller gesellschaftlichen Zustände, die ewige
 Unsicherheit und Bewegung“1
